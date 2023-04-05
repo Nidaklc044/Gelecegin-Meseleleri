@@ -5,7 +5,7 @@ https://medium.com/@kilicccnida/gelece%C4%9Fin-meseleleri-780cf8819add
 
 Geleceğin Meseleleri
 
-Bir çoğumuzun bir çok defa sorduğumuz soruları yanıtladığımız “Geleceğin meslek nedir?”, “Hangi alana yönelmeliyiz? ” veya “Hangi alanda işsiz kalmam?” gibi sorulardır. Ama aslında soruyu yanlış soruyoruz aynı zamanda sorunun cevabını da yanlış yerde arıyoruz .Sormamız gereken soru “Geleceğin meseleleri nasıl?” olmalı Neden mi? Geleceğin mesleklerini geleceğin meseleleri belirler.
+Bir çoğumuzun bir çok defa sorduğumuz soruları yanıtladığımız “Geleceğin meslekleri nelerdir?”, “Hangi alana yönelmeliyiz? ” veya “Hangi alanda işsiz kalmam?” gibi sorulardır. Ama aslında soruyu yanlış soruyoruz aynı zamanda sorunun cevabını da yanlış yerde arıyoruz .Sormamız gereken soru “Geleceğin meseleleri nasıl?” olmalı Neden mi? Geleceğin mesleklerini geleceğin meseleleri belirler.
 
 Peki o zaman sorusunu tekrar soralım Geleceğin meseleleri ne olacak? Bize bu konuda Birleşmiş Milletler Kalkınma Programının Sürdürülebilir Kalkınma Amaçları ile çeşitli yönleri “Megatrends” (devasa değerlendirmesi) raporları yol gösterecek.
 
